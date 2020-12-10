@@ -1,2 +1,0 @@
-lşkhgşoihnı
-lijghpşouıhoğiıh
