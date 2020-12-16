@@ -1,0 +1,2 @@
+Hello I'm Mehmet 
+This file has prepared for CC-005:Git Operations Assignment.
