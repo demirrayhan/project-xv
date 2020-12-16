@@ -7,4 +7,6 @@
 7. C7136-MehmetÇ
 8. C7159-Yunus
 9. C7173-İsrafil
-10. C7134-Kur10. C7134-Kurubal
+10. C7134-Kur10.
+11. C7134-Kurubal
+12. C7111-Ayhan
