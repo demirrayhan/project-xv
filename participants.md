@@ -9,3 +9,4 @@
 9. C7173-İsrafil
 10. C7134-Kur10. C7134-Kurubal
 11. C7154-Murat
+12. C7189-Omer
