@@ -17,4 +17,5 @@ C7109 - Sami
 C7198 - Omer
 C7185 - Elnur
 C7165 - Baki
-C7171 - Durmus
+C7171 - Durmu
+C7205-Fatih
