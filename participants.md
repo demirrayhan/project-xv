@@ -1,3 +1,5 @@
+So was Fikret.
+i everybody C7105-Erhan was here . Hello
 i, everyone
 Nurul here.
 C7128-Zub was here :)
@@ -14,3 +16,4 @@ c7123-Mustafa
 c7132-Mehmet
 C7169-Deniz Free your mind! There is no spoon! Thx for your support Tyler by the way.
 Hello Everyone! Aziz was here!
+******** C7188-Jack was here *********

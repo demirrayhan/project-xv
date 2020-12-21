@@ -42,4 +42,12 @@ C7135 - Niyazi
 
 C7197-Recep
 
+<<<<<<< HEAD
 c7151-serhat
+=======
+C7117-Mustafa
+
+C7157-Ali Ihsan
+
+C7181-Pablo 
+>>>>>>> c202703b17b26bd0d5d09e78301b8999dba1a402
