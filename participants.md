@@ -13,8 +13,8 @@ C7152 Omer added his name to here.
 
 
 
-c7123-Mustafa
+c7117-Mustafa
 c7132-Mehmet
 C7169-Deniz Free your mind! There is no spoon! Thx for your support Tyler by the way.
 Hello Everyone! Aziz was here!
-******** C7188-Jack was here *********
+*******i* C7188-Jack was here *********
