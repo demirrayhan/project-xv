@@ -1,4 +1,4 @@
-So was Fikret.
+7166-Kasim was here
 i everybody C7105-Erhan was here . Hello
 i, everyone
 Nurul here.
