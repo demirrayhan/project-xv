@@ -1,11 +1,8 @@
-<<<<<<< HEAD
 7166-Kasim was here
 i everybody C7105-Erhan was here . Hello
-=======
 Tahir here
 So was Fikret.
 i everid-Erhan was here . Hello
->>>>>>> 79a54a9e87c9a183ea04b381d5e700d2f15229f2
 i, everyone
 Nurul here.
 C7128-Zub was here :)
