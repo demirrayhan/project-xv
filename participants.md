@@ -1,5 +1,6 @@
+Tahir here
 So was Fikret.
-i everybody C7105-Erhan was here . Hello
+i everid-Erhan was here . Hello
 i, everyone
 Nurul here.
 C7128-Zub was here :)
